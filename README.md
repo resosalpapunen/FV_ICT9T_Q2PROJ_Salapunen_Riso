@@ -1,1 +1,0 @@
-# FV_ICT9T_Q2PROJ_Salapunen_Riso
